@@ -1,4 +1,4 @@
-# 
+# Mejor CCleaner complementos para Mac OS | Avanzado CCleaner complementos para PC Windows. Con seguimiento de eventos y optimizador de servicios — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
